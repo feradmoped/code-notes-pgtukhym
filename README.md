@@ -15,7 +15,6 @@
 - https://sites.google.com/view/u3tphnkkgdaz66ubap
 - https://sites.google.com/view/vtkron47snj8aeufif
 - https://sites.google.com/view/qgy56uovaxnmn57tyx
-- http://c.kfmail.top/c/code-notes-pgtukhym
 - https://sites.google.com/view/vtx8lgb2svu9geol52
 - https://sites.google.com/view/hc53qsr9qna06g77ee
 - https://sites.google.com/view/gwfm2l7nx1lt82clcm
@@ -114,10 +113,10 @@
 - https://sites.google.com/view/afz7p0ftclsyyq0hcb
 - https://sites.google.com/view/g8p2b2vkx4u2r7yqui
 - https://sites.google.com/view/a9xr10sifeyei5h132
-- http://c.kfmail.top/c/code-notes-pgtukhym
 - https://sites.google.com/view/gd29xg1mw3opzswyz7
 - https://sites.google.com/view/t5cwdp8pzredaevajj
 - https://sites.google.com/view/trj6mem80m0zlqrk2t
+- http://43.133.171.72/c/code-notes-pgtukhym
 - https://sites.google.com/view/h0arrv73a8124v7dqs
 - https://sites.google.com/view/pr4vfuw5mvckd1pxc1
 - https://sites.google.com/view/ab3ufvt99c5zm1a87m
@@ -161,6 +160,7 @@
 - https://sites.google.com/view/ysh6ldx7w85mgv3x95
 - https://sites.google.com/view/gcggwrjf2ljdp802b6
 - https://sites.google.com/view/n03nt5vw45n7nownoy
+- http://43.133.171.72/c/code-notes-pgtukhym
 - https://sites.google.com/view/vazohvixmiejvsofba
 - https://sites.google.com/view/lh514cyfiflt38xpns
 - https://sites.google.com/view/qnto00wpr4vrwcgkov
@@ -202,7 +202,6 @@
 - https://sites.google.com/view/jhvt0abmqq6kji02eu
 - https://sites.google.com/view/j716axq0ztg5tj7lfc
 - https://sites.google.com/view/munz83mls5qf9g3iq9
-- http://c.kfmail.top/c/code-notes-pgtukhym
 - https://sites.google.com/view/pvu8wv28o9ktsu06ca
 - https://sites.google.com/view/f4somx6pm0uwqvq4qu
 - https://sites.google.com/view/yx76m6jugl37u17cbs
@@ -306,4 +305,5 @@
 - https://sites.google.com/view/l180yhpmpqeiypph5j
 - https://sites.google.com/view/df3tlcgudzdx90kl75
 - https://sites.google.com/view/h404czle4e83fs0axf
+- http://43.133.171.72/c/code-notes-pgtukhym
 - https://sites.google.com/view/dj2t1lqsvr75fnu0p7
